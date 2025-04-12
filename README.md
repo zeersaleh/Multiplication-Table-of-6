@@ -18,19 +18,18 @@
 
 💡 **ألعاب اختبار جدول الضرب (من 3 إلى 14):** اجعل الدراسة ممتعة وفعالة. اطلع عليها!
 
-* 🎰 [جدول ضرب الرقم 3](https://lnkd.in/d5WFitgn)
-* 🎰 [جدول ضرب الرقم 4](https://lnkd.in/dGmJpWfx)
-* 🎰 [جدول ضرب الرقم 5](https://lnkd.in/dbiGqy2Z)
-* 🎰 [جدول ضرب الرقم 6](https://lnkd.in/dMY4kBAz)
-* 🎰 [جدول ضرب الرقم 7](https://lnkd.in/dg_SNCB4)
-* 🎰 [جدول ضرب الرقم 8](https://lnkd.in/dDSuAra2)
-* 🎰 [جدول ضرب الرقم 9](https://lnkd.in/djfHsGsT)
-* 🎰 [جدول ضرب الرقم 10](https://lnkd.in/dDYWzHRg)
-* 🎰 [جدول ضرب الرقم 11](https://lnkd.in/dVfyg8ZF)
-* 🎰 [جدول ضرب الرقم 12](https://lnkd.in/dWaCUv8i)
-* 🎰 [جدول ضرب الرقم 13](https://lnkd.in/d8vgutPb)
-* 🎰 [جدول ضرب الرقم 14](https://lnkd.in/dFqYrfC6)
+* 👾 👾 👾 [جدول ضرب الرقم 3](https://zeersaleh.github.io/Multiplication-Table-of-3/)
+* 👾 👾 👾 [جدول ضرب الرقم 4](https://zeersaleh.github.io/Multiplication-Table-of-4/)
+* 👾 👾 👾 [جدول ضرب الرقم 5](https://zeersaleh.github.io/Multiplication-Table-of-5/)
+* 👾 👾 👾 [جدول ضرب الرقم 6](https://zeersaleh.github.io/Multiplication-Table-of-6/)
+* 👾 👾 👾 [جدول ضرب الرقم 7](https://zeersaleh.github.io/Multiplication-Table-of-7/)
+* 👾 👾 👾 [جدول ضرب الرقم 8](https://zeersaleh.github.io/Multiplication-Table-of-8/)
+* 👾 👾 👾 [جدول ضرب الرقم 9](https://zeersaleh.github.io/Multiplication-Table-of-9/)
+* 👾 👾 👾 [جدول ضرب الرقم 10](https://zeersaleh.github.io/Multiplication-Table-of-10/)
+* 👾 👾 👾 [جدول ضرب الرقم 11](https://zeersaleh.github.io/Multiplication-Table-of-11/)
+* 👾 👾 👾 [جدول ضرب الرقم 12](https://zeersaleh.github.io/Multiplication-Table-of-12/)
+* 👾 👾 👾 [جدول ضرب الرقم 13](https://zeersaleh.github.io/Multiplication-Table-of-13/)
+* 👾 👾 👾 [جدول ضرب الرقم 14](https://zeersaleh.github.io/Multiplication-Table-of-14/)
 
----
 
 **الكلمات المفتاحية:** #MathGames #Education #Quizzes #GamesForEducation #FunLearning #LearnEnglish #EnglishLessons #LanguageLearning
